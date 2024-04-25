@@ -4,6 +4,7 @@
 - 📫 My contact information is ...
   Phone: 3617373661
   Email: jdehar98@gmail.com
+  LinkedIn: https://www.linkedin.com/in/jacob-dehart-155284197/
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I can deadlift over 550 lbs/250 kg
 
